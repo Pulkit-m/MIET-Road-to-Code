@@ -40,7 +40,7 @@ These Sources are good and all that is necessary to ace coding rounds and interv
 
 ___ 
 #### Pulkit Mahajan 
-Reach me at [LinkedIn](www.linkedin.com/in/pulkit-mahajan-lkdn)
+Reach me at [LinkedIn](https://www.linkedin.com/in/pulkit-mahajan-lkdn)
 
 
 
